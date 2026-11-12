@@ -54,16 +54,6 @@ Demon Slayer presents several meaningful themes throughout the story:
 I like Demon Slayer because it offers more than just exciting fight scenes. The storyline has emotional moments that make the characters relatable, especially Tanjiro's dedication to saving his sister. I also appreciate how each character has a different personality, background, and motivation.
 Another reason I enjoy this series is its animation quality. The fight sequences are visually impressive, and the music and sound effects make important scenes more engaging. Overall, the combination of storytelling, character development, and animation makes it an enjoyable anime to watch.
 
-## My Favorite Parts
-
-Some of the things I enjoy most about the series are:
-
-- The strong relationship between Tanjiro and Nezuko.
-- The unique breathing techniques and swordsmanship styles.
-- The battles against powerful demons.
-- The character development of Tanjiro and his companions.
-- The emotional backstories that explain the experiences of different characters.
-
 ## Personal Rating
 
 **My Rating: 10/10**
